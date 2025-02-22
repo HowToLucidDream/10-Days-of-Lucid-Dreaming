@@ -9,3 +9,6 @@ This allows you to go at your own speed.
 Please take your time and do not feel rushed.
 If you have any troubles or questions, please join this discord server and ask us anything. We have specialised Lucid Dreamers with 20+ Years of experience!
 https://discord.gg/dreamcafe
+
+- Credits -
+Owner - Asteroid
